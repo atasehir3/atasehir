@@ -1,4 +1,4 @@
-# 🚀 Ataşehir Escort – Güvenli, Kaliteli ve Gizli Buluşmalar 🕶️
+# ​🫦 Ataşehir Escort – Hızlı, Güvenli ve Gizli Hizmetler ❤️
 
 [![Ataşehir Escort Hizmeti için TIKLA](kiz.png)](https://pezevenkdayi.xyz)
 
